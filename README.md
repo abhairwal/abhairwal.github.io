@@ -1,2 +1,0 @@
-# abhairwal.github.io
-Blogs
